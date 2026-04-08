@@ -4,4 +4,4 @@ Our life is short.
 
 We have to live short life.
 
-We have to enjoy.
+We have to enjoy everyday.
